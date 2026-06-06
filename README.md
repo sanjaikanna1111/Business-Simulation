@@ -8,23 +8,15 @@ The report evaluates financial and non-financial performance across six board me
 Key Performance Results:
 
 Revenue grew from £200m to £329.8m
-
 PBIT dropped to 13.3% during expansion but recovered to 17.6%
-
 Staff cost ratio reduced through rationalisation
-
 Client retention improved steadily
 
 Strategic Frameworks Applied:
-
 Porter’s Five Forces
-
 Ansoff Matrix
-
 Resource-Based View (RBV)
-
 Organisational Design Theory
-
 Blue Ocean Strategy
 
 
