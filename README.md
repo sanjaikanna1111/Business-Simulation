@@ -7,40 +7,40 @@ The report evaluates financial and non-financial performance across six board me
 
 Key Performance Results:
 
-Revenue grew from £200m to £329.8m
-PBIT dropped to 13.3% during expansion but recovered to 17.6%
-Staff cost ratio reduced through rationalisation
-Client retention improved steadily
+•Revenue grew from £200m to £329.8m
+•PBIT dropped to 13.3% during expansion but recovered to 17.6%
+•Staff cost ratio reduced through rationalisation
+•Client retention improved steadily
 
 Strategic Frameworks Applied:
-Porter’s Five Forces
-Ansoff Matrix
-Resource-Based View (RBV)
-Organisational Design Theory
-Blue Ocean Strategy
+•Porter’s Five Forces
+•Ansoff Matrix
+•Resource-Based View (RBV)
+•Organisational Design Theory
+•Blue Ocean Strategy
 
 
 Key Strategic Insights:
 
-Over-expansion without sequencing reduced short-term profitability
+•Over-expansion without sequencing reduced short-term profitability
 
-Growth must align with governance capability
+•Growth must align with governance capability
 
-Talent investment drives long-term differentiation
+•Talent investment drives long-term differentiation
 
-Balanced integration improves operational stability
+•Balanced integration improves operational stability
 
 
 Skills Demonstrated:
-Financial KPI analysis
+•Financial KPI analysis
 
-Strategic planning
+•Strategic planning
 
-Business model evaluation
+•Business model evaluation
 
-Risk assessment
+•Risk assessment
 
-Reflective decision-making
+•Reflective decision-making
 
-Commercial awareness
+•Commercial awareness
 
